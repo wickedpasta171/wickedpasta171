@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on 
 - 📫 How to reach me ...
 - 😄 Pronouns: He/him.
-- ⚡ Fun fact: I dont wanna stael anyone's aura.
+- ⚡ Fun fact: I dont wanna steal anyone's aura.
 
 <!---
 wickedpasta171/wickedpasta171 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
